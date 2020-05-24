@@ -1,0 +1,1 @@
+# Abstract-2-Sayiya-4-Islem-Uygulamasi
